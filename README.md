@@ -18,7 +18,7 @@ For more details or to request a custom solution, feel free to reach out:
 - **Telegram**: [@bypassexam](https://t.me/bypassexam), [@bypassy](https://t.me/bypassy)
 - **Telegram Channel**: [@BypassLockdownBrowser](https://t.me/BypassLockdownBrowser)
 - **Discord**: [Bypassy](https://discord.gg/WF6KQHMpQx)
-- **WhatsApp**: +44 7767328564
+- **Discord Server**: https://discord.gg/WF6KQHMpQx
 
 ---
 
